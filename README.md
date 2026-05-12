@@ -1,2 +1,1 @@
-# K2-42-U-8QTJ-pk-f-i-Vfahq-rOndD-
-K2{42~U%8QTJ`pk~f/i'Vfahq^rOndD;
+C:\Windows\System32\calc.exe
